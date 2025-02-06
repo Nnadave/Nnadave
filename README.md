@@ -2,7 +2,7 @@
 - 👀 I’m interested in any related crypto job
 - 🌱 I’m currently learning web design 
 - 💞️ I’m looking to collaborate on moderating any community or creating a content 
-- 📫 How to reach me here or on x @nnadave32DED
+- 📫 How to reach me here or on x @blacknna32
 - 😄 Pronouns: nnadave
 - ⚡ Fun fact: i love my job
 
